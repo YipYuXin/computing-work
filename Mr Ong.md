@@ -1,4 +1,5 @@
-Mr Ong da Science tea-cher
+**Mr Ong da Science tea-cher**
+
 Ever since he came to teach us, we never stopped laughing. 
 That's because his jokes are just too good, and maybe... cringy(?).
 People always say that he tells all the good jokes, now all of them Argon.
@@ -9,5 +10,5 @@ Although my Science grades aren't that great, I believe that just by listening t
 That is how genius he is.
 And outstanding.
 And amazing.
-Isn't that the best a teacher can get?
+Isn't that the best a teacher can be?
 :)
