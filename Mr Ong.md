@@ -1,6 +1,6 @@
 ***Mr Ong da Science tea-cher***
 
->Ever since he came to teach us, we never stopped laughing. 
+Ever since he came to teach us, we never stopped laughing. 
 That's because his jokes are just too good, and maybe... cringy(?).
 People always say that he tells all the good jokes, now all of them Argon.
 But still, he comes up with new jokes every lessin to make us remember the concepts better.
